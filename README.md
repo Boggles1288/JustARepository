@@ -2,6 +2,7 @@
 I am the owner of [Hentai's Gate](https://hentaisgate.tk) & [7suki](https://7suki.tk). I help contribute to projects sometimes so let me know.
 
 Discord: Nubtuc#9813
+
 YouTube: Nubtuc
 
 ![Ah](https://raw.githubusercontent.com/nokonoko/nokonoko/master/roll.jpeg)
